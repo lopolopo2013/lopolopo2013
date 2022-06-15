@@ -5,9 +5,9 @@ _Nathalia valente 😍_
 
 _Futebol ⚽_
 
-_Neymar_
+_Lionel Messi_
 
-_Phelipe coutinho_
+_Philippe coutinho_
 
 ## Oque eu quero fazer:
 - Virar profisional de futebol 
