@@ -1,7 +1,7 @@
 # Pedro Henrique Lima Marsari 
 
 ## Meus intereses:
-_Nathalia valente 😍_
+_Engenharia civil_
 
 _Futebol ⚽_
 
@@ -11,6 +11,7 @@ _Philippe coutinho_
 
 ## Oque eu quero fazer:
 - Virar profisional de futebol 
+- Me formar em engenharia 
 
 **Onde me achar**
 
